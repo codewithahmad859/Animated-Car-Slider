@@ -1,2 +1,4 @@
 Hello Developers This is Ahmad here to show some tutorials for frontend programming.
-seriously all the code is not mine, some are takes from other developers and some take form chat gpt.
+#coders,#ΛΉMΛD,#ahmad,
+https://www.instagram.com/codewithahmad859/
+![image](https://github.com/codewithahmad859/Animated-Car-Slider/assets/169986158/7abcc87d-9ae5-4fd7-8be8-99d407bd88d0)
